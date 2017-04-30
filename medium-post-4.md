@@ -1,5 +1,13 @@
-## jdjdj
-kfk
-* lsls
+## Modern Slavery
 
-lllclc
+Slavery still exists today. As long as inequality exists in the world, those in power will oppress and abuse those without power, which means those who are without money. When people think of slavery, the first thing that might come to mind has to do with race, or more specifically [chattel slavery](http://www.fdfi.org/slavery-today.html). In this form of slavery, violence is used as an oppressor for coercion and behavior management. The people are sold as property, and are used exactly as such.
+
+There are many categories of slavery, though, what I want to draw attention to is sex slavery. There are multiple layers to sex slavery, especially when considering prostitution. Seen as a choice in the face of severe and unfortunate circumstances, these people usually have *no* choice at all. Women and children are sometimes sold by their [poverty-stricken](http://www.cnn.com/interactive/2013/12/world/cambodia-child-sex-trade/) parents, or those who are sex slaves are kidnapped, beaten drugged, and many die from diseases, beatings, or drug overdoses. And the cycle continues on and on, unless justice can be found through [education](https://www.youtube.com/watch?v=WS5Za4xGsLs) and the opportunity to actively learn about about resources and understanding the steps one must take to reach a level of personal safety and security.
+
+It is necessary for students to be able to identify the causes of human trafficking and be able to prevent being victimized, therefore preventing and protecting others as well. To help produce a flexible curriculum that includes topics such as human trafficking.
+
+When I found out about the [Frederick Douglass Family Initiatives](http://www.fdfi.org/protect.html) I realized how little America's public education system discusses human trafficking to the largest demographic that is trafficked. According to [fdfi.org](http://www.fdfi.org/protect.html) their mission is to produce a standardized educational curriculum built for students in the 5th, 7th, 9th, and 11th grade.
+
+However, this initiative has barely been integrated outside of the state of California as of now. The curriculum program is called PROTECT: Prevention Organized to Educate Childern on Trafficking, and offers lesson modules designed to [empower students...and to respond](http://protectnow.org/about/) with the services victims and those at-risk need. Already, in California, PROTECT has educated over [100,000](http://www.businesswire.com/news/home/20170110006459/en/California-Partnership-Launches-Statewide-Education-Program-PROTECT) students in 20 California counties and three other states--Georgia, New York, and Hawaii. [TIP NOW](http://tipnow.com/) is an app that has also been developed to help anonymous reporting, which also provides important quantitative data.
+
+The fight for education is vital to ending human trafficking and the disintegration of a powerful and heinous market.
